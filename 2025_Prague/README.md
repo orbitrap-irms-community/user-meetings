@@ -1,5 +1,5 @@
 # Inaugural International Orbitrap-IRMS Users Meeting
-11–12 July 2025 <br/>
+5–6 July 2025 <br/>
 Prague, Czech Republic <br/>
   
 <ins>Convenors</ins>: Amy Hofmann (Caltech), Issaku Kohl(University of Utah), Andrea Erhardt (University of Kentucky)<br/>
